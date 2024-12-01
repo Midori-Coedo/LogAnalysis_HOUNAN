@@ -5,7 +5,7 @@
 ① 統計データで見る、麻雀のトレンド変化 【重要スタッツ編】  
 https://note.com/coedog/n/n42a7dcf9995e  
 ② 統計データで見る、麻雀のトレンド変化 【段位・レート編】  
-  
+https://note.com/coedog/n/ne9bb2330de4e  
 ③【検証】 鳳凰卓東南戦はどの時間帯が”辛い”のか？ 【四麻】  
 https://note.com/coedog/n/n5847445111bc  
 ④【四麻】 平日と休日はどっちが辛い？ 【鳳凰卓東南戦】  
